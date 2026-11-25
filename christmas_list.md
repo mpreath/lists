@@ -3,7 +3,15 @@
 ## Clothes
 - [Muck Boot Artic Sport Tall](https://www.walmart.com/ip/Muck-Boot-Company-Men-s-Arctic-Sport-Tall-Boot/26078651), Black, Men's size 11
 - [Adidas Samba OG](https://www.adidas.com/us/samba-og-shoes/B75807.html?forceSelSize=M+11+%2F+W+12) Men's size 11
-- [Uniqlo Supima Cotton T-shirt](https://www.uniqlo.com/us/en/products/E455365-000/00?colorDisplayCode=09&sizeDisplayCode=004), size M
+- Black t-shirts (size M or L - but L if not sure)
+- Pull overs or zip ups
+
+## Books
+
+- [The Book of Revelation (The New International Commentary on the New Testament)](https://www.amazon.com/gp/product/0802825370)
+- [The Gospel of Matthew (New International Commentary on the New Testament (NICNT))](https://www.amazon.com/gp/product/080282501X)
+- [The Book of Ezekiel, Chapters 1–24 (New International Commentary on the Old Testament (NICOT))](https://www.amazon.com/gp/product/0802825354)
+- [The Book of Ezekiel, Chapters 25–48 (New International Commentary on the Old Testament (NICOT))](https://www.amazon.com/gp/product/0802825362)
 
 ## Games
 
