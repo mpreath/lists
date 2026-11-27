@@ -21,3 +21,5 @@
 - [Onimusha Way of the Sword](https://www.walmart.com/ip/Onimusha-Way-of-the-Sword-PlayStation-5-Game/20277723943?classType=REGULAR&athbdg=L1600&from=/search)
 - [Blood of the Dawnwalker](https://www.walmart.com/ip/The-Blood-of-Dawnwalker-PlayStation-5-Game/20633415122?classType=REGULAR&athbdg=L2005&from=/search)
 
+## Workout
+- [NovaRow R50 Pro Air Rower](https://merachfit.com/products/novarow-r50-air-resistance-rower?_su_rec=SnS5YHyeIE4U2QZitHoSRSHLo8IdA3HYtUVazbx5gh9ikH7Mo_3Syu3mfqZaoQQYsgMRIODxZGeC9SiD3RCHta4OCMSQBJemJrA-paPV31ZQHbxUTaw10jh2QPJfBCtiFer8MaX38oJy0KKI7EVnjQMTJVxJzCYTgrOGqTfnhyIHdcoYrT5bmbv1C1PQK5OjJ204sqrbFzf5nlbx05r81fWhWkP1cjtq-YSsFRXBLH6cAjknXbIIyfB5jl1RkQu9LX_FsBtialeuKZ4TmMKJGgnM7aiyNPbSJRWodJV2mPc41scAY_tG83cvunLSmWE62rS4MpGYzO_v-JumXBGpr_yHKXtyRStVnW6Tp25sAkeuCI1zFNNkIVXKwxDrptBVw5Sy-5BDhjNyKlZeo9jZWydhShjREwm3TACELILYPcq8uVeOfw&_su_rec_id=56f93d4e-ba59-4050-8d7b-e8c2363676c3-1795710359)
