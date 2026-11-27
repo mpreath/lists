@@ -5,6 +5,7 @@
 - [Adidas Samba OG](https://www.adidas.com/us/samba-og-shoes/B75807.html?forceSelSize=M+11+%2F+W+12) Men's size 11
 - Black t-shirts (size M or L - but L if not sure)
 - Pull overs or zip ups
+- Black ankle socks
 
 ## Books
 
